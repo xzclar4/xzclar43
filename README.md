@@ -12,4 +12,4 @@ Meu nome é: Ana Clara
 
 anaclarathavares2041@gmail.com
 
-00001168100069sp@al.educacao.sp.gov.br
+@xz_clar4
